@@ -1,6 +1,8 @@
-## Hi!
 This is Blonisco,a college student from BUPT,BeiJing
 
+Link:、
+豆瓣:https://www.douban.com/people/Blonisco/?_i=1896384z43RWsy
+bilibili:https://space.bilibili.com/452962534
 <!--
 **Blonisco/Blonisco** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
