@@ -1,4 +1,4 @@
-This is Blonisco,a college student from BUPT,BeiJing
+A college student from BUPT,BeiJing
 
 Link:、
 豆瓣:https://www.douban.com/people/Blonisco/?_i=1896384z43RWsy  
